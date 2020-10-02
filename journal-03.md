@@ -1,0 +1,3 @@
+I think that as an adult learner, I'm fortunate to have the prior work/life experience to help me understand new concepts.  It's a good base of knowledge for me to compare the new things that I learn against, and if I can understand that some new thing is somehow similar to something I already know, that can help too.  
+
+I also think it's important to remember that the things I learn can be an entirely new category.  I don't want to get stuck trying to relate everything I learn to something I already know.  There could be (certainly are) brand new things out there that I haven't run into before.  While my experience is a good resource to have and reference, I want to make sure to keep an open mind to ideas that are completely new to me. 
