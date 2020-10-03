@@ -6,4 +6,4 @@ That was a long way of saying that for loops are super useful!
 
 ## Reflection
 
-My why for becoming a software engineer is still the same.  My why for learning aobut for loops and such is that I can use these different tools to successfully accomplish things with code. 
+My why for becoming a software engineer is still the same.  My why for learning about for loops and such is that I can use these different tools to successfully accomplish things with code. 
